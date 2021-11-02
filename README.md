@@ -23,3 +23,10 @@ may become infectedby touching a contaminated surface and then
 touching their face. It is most contagious during the firstthree
 days after the onset of symptoms, although spread is possible
 before symptoms appear, andfrom people who do not show symptoms.
+![Screenshot (107)](https://user-images.githubusercontent.com/92453074/139810968-b1fc6f60-0615-47ab-bf41-6533e6b52a5e.png)
+![Screenshot (108)](https://user-images.githubusercontent.com/92453074/139810976-444dbf47-9493-4947-ad0e-031ccffee44a.png)
+![Screenshot (109)](https://user-images.githubusercontent.com/92453074/139810987-1ae10465-a7a3-409e-b23b-e13a2928993f.png)
+![Screenshot (111)](https://user-images.githubusercontent.com/92453074/139810998-3662a317-0432-4cc7-a0b6-4f8c140dedac.png)
+![Screenshot (112)](https://user-images.githubusercontent.com/92453074/139811009-42a2bf7c-162b-42b1-9c![Screenshot (115)](https://user-images.githubusercontent.com/92453074/139811017-bfbc2fdc-23cf-4c58-8245-abfaff828f95.png)
+10-16452cf58cf1.png)
+![Screenshot (116)](https://user-images.githubusercontent.com/92453074/139811025-016795a0-0185-4c81-8df8-e83615e67b8f.png)
