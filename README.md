@@ -1,4 +1,5 @@
 Covid 19 Detection Software
+
 Coronavirus disease 2019 (COVID-19) is an infectious disease
 caused by severe acute respiratorysyndrome coronavirus 2 (SARSCoV-
 2). It was first identified in December 2019 in Wuhan, China,
